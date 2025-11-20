@@ -1,6 +1,7 @@
 ## Hey Hey Hey 
 
-https://i.pinimg.com/736x/8a/da/ba/8adabab3390711168ddfbd705a817b96.jpg
+![Uploading image.png…]()
+
 
 
 'bout me （￣︶￣）↗ 
