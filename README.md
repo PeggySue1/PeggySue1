@@ -34,6 +34,8 @@ Im in many fandoms but those are the ones im active the most:
 - Takopii No Genzai
 - Parasite in love
 - Brawl Stars
+
+  
   An' many, many, many moreeeee!!!! just forget 'bout most of 'em... （；´д｀)
 
 
