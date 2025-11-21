@@ -14,4 +14,11 @@ I rlly enjoy talking with anyone, but im bad at keeping conversation, im trying 
 
 I have my own kind of humor, so if ya dont rlly like it, just tell me.
 
+I would rlly love to talk 'bout yer interests, ocs, things that ya like an' things that i like!! Im open-minded to try new things.
+Im looking for recommendations:
+- manga an' anime
+- music
+- games
+
+
 
