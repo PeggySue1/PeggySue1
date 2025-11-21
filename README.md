@@ -10,3 +10,4 @@
 
 Hey im Peggy, pls int with meee, im bored all alone 
 
+Im a chill person, i dont want to get involed in any sort of drama...
