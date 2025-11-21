@@ -8,6 +8,6 @@
 'bout me （￣︶￣）↗ 
 
 
-Hey im Peggy, pls int with meee, im bored all alone 
-
-Im a chill person, i dont want to get involed in any sort of drama...
+Hey im Peggy, feel free to interact !! Im always semi-afk, so wisper me to int. 
+I rlly enjoy talking with anyone, but im bad at keeping conversation, im trying my best though...
+I have my own kind of humor, so if ya dont rlly like it, just tell me
