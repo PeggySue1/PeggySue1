@@ -12,4 +12,6 @@ Hey im Peggy, feel free to interact !! Im always semi-afk, so wisper me to int.
 
 I rlly enjoy talking with anyone, but im bad at keeping conversation, im trying my best though...
 
-I have my own kind of humor, so if ya dont rlly like it, just tell me
+I have my own kind of humor, so if ya dont rlly like it, just tell me.
+
+
