@@ -38,7 +38,10 @@ Im in many fandoms but those are the ones im active the most:
   
   An' many, many, many moreeeee!!!! just forget 'bout most of 'em... （；´д｀)
 
-<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/76eb5a10-12f7-4cc8-a106-d9b52808e131" />
+<img width="261" height="230" alt="image" src="https://github.com/user-attachments/assets/36cd6e65-ecac-46b6-a566-bb26ffe9c662" />
+
+
+
 
 
 
