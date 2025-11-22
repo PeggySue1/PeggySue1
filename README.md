@@ -28,15 +28,21 @@ Im in many fandoms but those are the ones im active the most:
 - Alice in Borderland
 - Sakura CardCaptor
 - NANA
+- Samurai Champloo
 - MovieStarPlanet ( heh ya can add me on Polish server - hwastek12 )
 - Amour Sucré
 - Minecraft ( plss i need someone to play withhh )
-- Takopii No Genzai
 - Parasite in love
 - Brawl Stars
 
   
   An' many, many, many moreeeee!!!! just forget 'bout most of 'em... （；´д｀)
+
+<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/76eb5a10-12f7-4cc8-a106-d9b52808e131" />
+
+
+
+  
 
 
 
