@@ -40,6 +40,8 @@ Im in many fandoms but those are the ones im active the most:
 
 <img width="261" height="230" alt="image" src="https://github.com/user-attachments/assets/36cd6e65-ecac-46b6-a566-bb26ffe9c662" />
 
+have a peaceful day twin, i hope that everything gonna be okay 
+
 
 
 
