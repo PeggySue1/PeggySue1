@@ -38,7 +38,7 @@ Im in many fandoms but those are the ones im active the most:
   
   An' many, many, many moreeeee!!!! just forget 'bout most of 'em... （；´д｀)
 
-<img width="261" height="230" alt="image" src="https://github.com/user-attachments/assets/36cd6e65-ecac-46b6-a566-bb26ffe9c662" />
+https://i.pinimg.com/originals/49/6e/8e/496e8e7f8e6b84c74c39eef304a159cc.gif
 
 have a peaceful day twin, i hope that everything gonna be okay 
 
