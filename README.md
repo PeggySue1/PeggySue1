@@ -25,20 +25,21 @@ Im in many fandoms but those are the ones im active the most:
 - Umamasume Pretty Derby
 - Silent Hill f
 - Silent Hill 2
-- Alice in Borderland
+- Alice in Borderland ( manga an' series )
 - Sakura CardCaptor
 - NANA
 - Samurai Champloo
 - MovieStarPlanet ( heh ya can add me on Polish server - hwastek12 )
 - Amour Sucré
 - Minecraft ( plss i need someone to play withhh )
-- Parasite in love
+- Skip & Loafer
 - Brawl Stars
 
   
   An' many, many, many moreeeee!!!! just forget 'bout most of 'em... （；´д｀)
 
-https://i.pinimg.com/originals/49/6e/8e/496e8e7f8e6b84c74c39eef304a159cc.gif
+<img width="248" height="314" alt="image" src="https://github.com/user-attachments/assets/e853c73f-20aa-4af6-b463-d2deead09052" />
+
 
 have a peaceful day twin, i hope that everything gonna be okay 
 
