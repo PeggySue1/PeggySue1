@@ -1,3 +1,8 @@
+<p align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=PeggySue1.PeggySue1" alt="profile views" />
+</p>
+
+
 <div align="center">
   <a href="https://peggysue.atabook.org/">Atabook</a>
 </div>
