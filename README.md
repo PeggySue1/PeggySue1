@@ -15,7 +15,8 @@
 
 
 
-# 'bout mee
+
+<h1 align="center">'Bout mee</h1>
 
 
 wait im still workin' on this... 
