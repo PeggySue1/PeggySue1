@@ -1,5 +1,5 @@
 <div align="center">
-  <a href="https://example.com](https://peggysue.atabook.org/">Atabook</a>
+  <a href="https://peggysue.atabook.org/">Atabook</a>
 </div>
 
 
