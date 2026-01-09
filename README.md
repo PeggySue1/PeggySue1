@@ -18,7 +18,7 @@
 <p align="center"> 
  <strong> ૐ </strong>
 </p>
-<h1 align="center"> .☘︎ ݁˖'Bout mee ༄ </h1>
+<h1 align="center"> ☘︎'Bout mee ༄.° </h1>
 
 
 wait im still workin' on this... 
