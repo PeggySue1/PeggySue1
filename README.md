@@ -36,11 +36,6 @@ I don't have any dni, just don't be mean an' +19...
 still workin' on this! 
 
 
-<p align="center">
-  <img src="https://tenor.com/pl/view/mamegoma-baby-seal-tantrum-gif-12912220">
-</p>
-
-
 
 
 
