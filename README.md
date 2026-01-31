@@ -54,7 +54,7 @@ Like I said, I struggle with keepin' conversations and even if I'm tryin' to not
 <p align="middle">
 <strong> fandoms I'm in </strong>
 
-tshd, Samurai Champloo, NANA, Cardcaptor Sakura, skip & loafer, alice in borderland, daily dose of sunshine, resident playbook, weak hero, squid game, all of us are dead, yansim, mouthwashing, silent hill, scp fundation, hwwhp, umamasume pretty derby. theres a lotta more... I'm still watchin' some series, but I don't have the motivation for finishin' it (-_-;
+tshd, Samurai Champloo, NANA, Cardcaptor Sakura, skip & loafer, alice in borderland, daily dose of sunshine, resident playbook, weak hero, squid game, all of us are dead, yansim, mouthwashing, silent hill, scp fundation, hwwhp, umamasume pretty derby. theres A LOTTA more... I'm still watchin' some series, but I don't have the motivation for finishin' it (-_-;
 recommend me some cool games, pleaseeeee !!!
 
 
