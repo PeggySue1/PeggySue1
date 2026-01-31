@@ -49,7 +49,14 @@ I'm workin' on a lore too, so if yer skilled at this, gimme some advices
 <strong> more 'bout me </strong>
 
 
-Like I said, I struggle with keepin' conversations and even if I'm tryin' to not, I'm bein' akward instead | It might be hard to talk with me first but, I get very comfortable after a while, maybe even too much comfortable? If I'm 'bein weird tell me! 'couse my weird jokes are kinda stupid (-_-; I think bein' honest is a really important thing, specially to me. I hate when someone has a problem and they are just tryin' to avoid me or smthhhh... please, tell me whats wrong, I won't be mad... okayyy? | If I want to be friends rlly bad, I tend to be annoyin', tell me to stop, please. 
+Like I said, I struggle with keepin' conversations and even if I'm tryin' to not, I'm bein' akward instead | It might be hard to talk with me first, but I get very comfortable after a while, maybe even too much comfortable? If I'm 'bein weird tell me! 'couse my weird jokes are kinda stupid (-_-; I think bein' honest is a really important thing, specially to me. I hate when someone has a problem and they are just tryin' to avoid me or smthhhh... please, tell me whats wrong, I won't be mad... okayyy? | If I want to be friends rlly bad, I tend to be annoyin', tell me to stop, please. 
+
+<p align="middle">
+<strong> fandoms I'm in </strong>
+
+tshd, Samurai Champloo, NANA, Cardcaptor Sakura, skip & loafer, alice in borderland, daily dose of sunshine, resident playbook, weak hero, squid game, all of us are dead, yansim, mouthwashing, silent hill, scp fundation, hwwhp, umamasume pretty derby. theres a lotta more... I'm still watchin' some series, but I don't have the motivation for finishin' it (-.-;
+please recommend me some cool games, pleaseeeee !!!
+
 
 
 
