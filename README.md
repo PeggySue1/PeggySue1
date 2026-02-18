@@ -30,15 +30,7 @@ Any int is welcomed, I'm open for a chat, tho I can't keep an conversation, don'
 </p>
 
 <p align="right">
-I don't have any dni, just don't be mean and +19...
-</p>
-
-<p align="right">
-I luv listenin' 'bout yer oc lore!! pls interact and share it with meee!!! i would luv to draw 'em as well!! >o<
-</p>
-
-<p align="right">
-I'm workin' on a lore too, so if yer skilled at this, gimme some advices 
+I don't have any dni, just don't be mean and +20...
 </p>
 
 <p align="middle">
