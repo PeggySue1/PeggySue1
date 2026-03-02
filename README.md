@@ -30,7 +30,7 @@ Any int is welcomed, I'm open for a chat, tho I can't keep an conversation, don'
 </p>
 
 <p align="right">
-I don't have any dni, just don't be mean and +20...
+I don't have any dni, just don't be mean and +19...
 </p>
 
 <p align="middle">
